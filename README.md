@@ -1,1 +1,1 @@
-Programmer. FP believer.
+Software developer
